@@ -1,8 +1,4 @@
 - Namaste, I am Akshay Anand.
-  
-https://www.linkedin.com/in/akshay-anand-737791228/
-
-https://akshayanand2002.github.io/Akshay_P1/
 
 
 <!---
